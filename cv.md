@@ -1,5 +1,5 @@
 # Alexandra Volkova
-## Contcts
+## Contacts
 * **Phone**: +375 5696321
 * **E-mail**: alex.volkova@gmail.com
 * **GitHub**: vereska
